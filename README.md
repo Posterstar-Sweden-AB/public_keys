@@ -1,1 +1,1 @@
-Nothing to see here, unless you'd like to grant us an access. 😇
+There's nothing to see here unless you want to grant us access. 😇
